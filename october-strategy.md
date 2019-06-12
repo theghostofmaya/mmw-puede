@@ -41,3 +41,8 @@
 - 7-10 chores and relaxing at home 
 - 10pm bedtime
 
+## Timeline
+- June - ALA
+- July - interns + LA trip
+- August - interns
+- September - wrap it all up w/ a bow
